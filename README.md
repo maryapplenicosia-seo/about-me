@@ -27,7 +27,7 @@ Outside of work, I love exploring new trends in digital marketing, connecting wi
 ---
 
 ## 🔹 Contact
-- Email: mary.apple@example.com  
+- Email: maryapplenicosia@gmail.com
 - LinkedIn: [Visit Profile](https://www.linkedin.com/in/mary-apple-villarias-seo/)  
 - GitHub: [My Projects](https://github.com/maryapplenicosia-seo)  
 
