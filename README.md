@@ -16,5 +16,5 @@ SEO Manager focused on technical optimization, data analysis, and performance-dr
 
 ## 🔹 Contact
 - Email: maryapplenicosia@gmail.com
-- LinkedIn: [Your LinkedIn](link)
-- GitHub: [Your GitHub](https://github.com/yourusername)
+- LinkedIn: [Visit Profile](https://www.linkedin.com/in/mary-apple-villarias-seo/)
+- GitHub: [My GitHub](https://github.com/maryapplenicosia-seo)
